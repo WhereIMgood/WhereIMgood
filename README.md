@@ -11,6 +11,10 @@ programming is the only way to express my unlimited mysterious energy, so i star
 2days, 3days, 4days, 1week, 1month, 5months... 5years.
 It took me so much time to finally get a good expirience.
 
+### IMPORTANT
+If you are interested in programming and you want to be around other programmers : fill the form to join my ultimate server full of cool programmers,
+<a href="https://tally.so/r/w4BJpk">Join Now !</a>
+
 ### An advice for beginners ⚠️
 
 Look my friend to learn programming or anything else,<br> YOU NEED SELF-DISCIPLINE 💼.
